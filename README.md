@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @SickoMode1-0
-- 👀 I’m interested in ip logging
+- 👀 Half Time Coder
 - 🌱 I’m currently learning shit in school
-- 💞️ I’m looking to collaborate on hentai
+- 💞️ Enjoy LIfe!
 - 📫 How to reach me discord
 
 <!---
